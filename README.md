@@ -4,7 +4,7 @@
 - 📫 How to reach me: virulabitalia@gmail.com or just use the issues tab
 - 😄 Pronouns: I go by any pronouns BUT I prefer he/him
 - ⚡ Fun fact:  i started programming when i was only 10 now im only 14 yo
-- 🌈 gender identity: pan 🍳
+- 🌈 sexuality: pan 🍳
 - ✝️ Catholic
 - ✉️ if you wanna contribute in any of my projects plz contact me it makes me happy
 
