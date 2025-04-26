@@ -2,9 +2,8 @@
 - 👀 I’m interested in coding/programming
 - 🌱 I’m currently learning python & gdscript
 - 📫 How to reach me: virulabitalia@gmail.com or just use the issues tab
-- 😄 Pronouns: I go by any pronouns BUT I prefer he/him
-- ⚡ Fun fact:  i started programming when i was only 10 now im only 14 yo
-- ✝️ Catholic
+- 😄 Pronouns: idk/idc
+- ⚡ Fun fact: i started programming when i was only 10 now im only 14 yo
 - ✉️ if you wanna contribute in any of my projects plz contact me it makes me happy
 
 view my website and my YouTube channel
